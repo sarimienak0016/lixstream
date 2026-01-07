@@ -1,18 +1,18 @@
 Syafinah baru lagi
 
-doobf.pro/13ssPgAMB
+https://doobf.pro/13ssPgAMB
 
-do-ply.com/s/v1lIQETk
+https://do-ply.com/s/v1lIQETk
 
-do-ply.com/s/lK7wLK0w
+https://do-ply.com/s/lK7wLK0w
 
-doobf.pro/AKU5BOggxB
+https://doobf.pro/AKU5BOggxB
 
-do-ply.com/s/e7IJuOY2
+https://do-ply.com/s/e7IJuOY2
 
-do-ply.com/s/JlfPPrr0
+https://do-ply.com/s/JlfPPrr0
 
-doobf.pro/4LCs2Lp9nF
+https://doobf.pro/4LCs2Lp9nF
 
 Join tele
-t.me/sedot6969
+https://t.me/sedot6969

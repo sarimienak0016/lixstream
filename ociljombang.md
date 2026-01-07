@@ -1,18 +1,18 @@
 Ochil jombang
 
-doobf.pro/9AI897iX6W
+https://doobf.pro/9AI897iX6W
 
-videyo.co/s/2EBf7pRo
+https://videyo.co/s/2EBf7pRo
 
-videyo.co/s/SDGh1Zyy
+https://videyo.co/s/SDGh1Zyy
 
-doobf.pro/6VHMyD9eku
+https://doobf.pro/6VHMyD9eku
 
-videyo.co/s/Clh6Gk3s
+https://videyo.co/s/Clh6Gk3s
 
-videyo.co/s/qva8bZSg
+https://videyo.co/s/qva8bZSg
 
-doobf.pro/40a1zbcCwQ
+https://doobf.pro/40a1zbcCwQ
 
 Join tele
-t.me/sedot6969
+https://t.me/sedot6969

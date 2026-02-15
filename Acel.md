@@ -1,20 +1,5 @@
-Acel aduhai
-
-https://videyo.co/s/5IeVkKP9
-
-https://videyvid.fun/5q1Alc4gb2
-
-https://videyo.co/s/YsvAh4NP
-
-https://videyo.co/s/r6LG2xZS
-
-https://videyvid.fun/9Kb2w0IUUS
-
-https://videyo.co/s/g2cADsha
-
-https://videyo.co/s/DL3Ws0Xi
-
-https://videyvid.fun/8AP5XsifFT
-
-Join tele
-https://t.me/sedot6969
+https://vidoyy.vercel.app/e/f65ai322b075
+https://vidoyy.vercel.app/e/qgm2y1mlzaxx
+https://vidoyy.vercel.app/e/dhgo6x1d04np
+https://vidoyy.vercel.app/e/7zx6o8omfj2w
+https://vidoyy.vercel.app/e/n5wcii4vzqer
